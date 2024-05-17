@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **MERN Stack development**
 
-- 👨‍💻 Check out my portfolio [althaf-nazeer.github.io/My--Portfolio/](althaf-nazeer.github.io/My--Portfolio/)
+- 👨‍💻 Check out my portfolio [althaf-nazeer.github.io/My--Portfolio/](https://althaf-nazeer.github.io/My--Portfolio/)
 
 - 💬 Ask me about **Python, React, MySQL**
 
