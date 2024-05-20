@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **althafnazeer.mec@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1FNL9LqM4Np9AjUCQyve6jKCYBZveR0Jg/view?usp=sharing](https://drive.google.com/file/d/1FNL9LqM4Np9AjUCQyve6jKCYBZveR0Jg/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1FNL9LqM4Np9AjUCQyve6jKCYBZveR0Jg/view?usp=sharing](https://drive.google.com/file/d/1zX-kqcZRFAlFN-sLhvMpJ-W8qH8KQENl/view?usp=sharing)
 
 - ⚡ Fun fact **I am an Adventure Seeker**
 
